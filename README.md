@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AoxInfinity
+- 👀 I’m interested in : 3d modeling 🎲
+- 🌱 I’m currently learning : Python 🐍
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me : just don't
