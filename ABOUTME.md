@@ -1,4 +1,8 @@
 - 👋 Hi, I’m @AoxInfinity
 - 👀 I’m interested in : 3d modeling 🎲
-- 🌱 I’m currently learning : Python 🐍
 - 📫 How to reach me : discord = aoxinfinity
+- 🧔 I am a guy
+- 😭 I am fatherless
+- 👾 I play games okay
+- 📺 I mostly just watch youtube
+- 💔 My profile is set to invisible so I will show up as always offline
